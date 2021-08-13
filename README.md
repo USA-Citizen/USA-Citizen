@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @USA-Citizen
-- 🌱 I major in a social science, but now are learning fundamental mathematics and programming.
+- 🌱 I major in one of social sciences, but now are also learning fundamental mathematics and programming.
 - 📫 How to reach me: WeChat:kk571021727
 
 <!---

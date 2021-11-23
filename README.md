@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @USA-Citizen
+- 👋 Hi, I’m @Somebody-Holy
 - 🌱 I major in one of social sciences, but now are also learning fundamental mathematics and programming.
 - 📫 How to reach me: WeChat:kk571021727
 
